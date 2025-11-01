@@ -1,4 +1,1 @@
 # Ghidorah
-# Ghidorah
-# Ghidorah
-# Ghidorah
